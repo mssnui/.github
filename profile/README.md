@@ -10,7 +10,7 @@ The Muslim Students’ Society of Nigeria (MSSN), University of Ibadan, operates
                 
 ## Contribution Guidelines
 
-We welcome contributions from individuals who share our vision and mission. If you're interested in contributing to our projects or initiatives, please reach out to us via email or visit our website for more information.
+We welcome contributions from individuals who share our vision and mission. If you're interested in contributing to our projects or initiatives, please reach out to us via [email](media.mssnui@gmail.com) or visit our [website](https://mssnunibadan.org) for more information.
 
 > "And who is better in speech than one who invites to Allah and does righteousness and says, 'Indeed, I am of the Muslims.'"
 > 
